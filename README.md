@@ -1,11 +1,11 @@
-- 👋 Hi, I’m @704858083
+- 👋 Hi, I’m 1970/01/01@704858083
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ... "+93702700006",145
-- 📫 How to reach me ...  {free} 10GB *477*6*1#﻿/704858083.
+- 💞️ I’m looking to collaborate on ... "+93704858093",145
+- 📫 How to reach me ...{free} 10GB *477*6*1#﻿/704858083.
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 [![.github/workflows/main.yml](https://github.com/704858083/704858083/actions/workflows/main.yml/badge.svg?event=registry_package)](https://github.com/704858083/704858083/actions/workflows/main.yml)<!---
-704858083/704858083 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  1970/01/01/704858083 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->{Free}<10GB•*477*6*1#﻿_/>704858083•#<Telephone numbercall>_SA2310EREV6
+--->{Free}<10GB•*477*6*1#﻿_/></04858083•#><Telephone numbercall>_SA2310EREV6
